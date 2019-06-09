@@ -1,3 +1,3 @@
 * :heart:
-  * :tree:
+  * :good:
     - :+1:
